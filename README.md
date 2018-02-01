@@ -1,1 +1,1 @@
-# PlusIdeasMedia.github.io
+# PlusIdeas
